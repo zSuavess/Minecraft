@@ -1,0 +1,2 @@
+# Minecraft
+.-.ABERTO PARA TODOS.-.
